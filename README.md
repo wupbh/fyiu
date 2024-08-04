@@ -1,5 +1,5 @@
 # 懂得都懂晚上正能量网卡站
-### <a href="https://https://github.com/wupbh/DFRTY/issues/1">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
+### <a href="https://github.com/wupbh/DFRTY/issues/1">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
    
 
 
